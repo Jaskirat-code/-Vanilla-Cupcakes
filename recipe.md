@@ -8,4 +8,4 @@
 8. Make sure to cool it for 10 - 15 min before taking out of the pan
 
 
-Note: Only put icing when the cupackes have cooled down, or else you icing will melt off of you cupcakes
+Note: Only put icing when the cupcakes have cooled down, or else you icing will melt off of you cupcakes
